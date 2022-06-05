@@ -1,5 +1,5 @@
 # music-that-makes-you-feel-better
-i like music more than i like people
+
 Welcome to slow-tempo music, in general, can help you relax your muscles and calm your thoughts. Various natural noises, such as flowing water or singing birds, can also be restful. So, here are some soothing music tracks to help you relax and reduce stress and worry.
 
 FAQ?!
